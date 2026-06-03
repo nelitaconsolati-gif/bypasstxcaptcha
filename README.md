@@ -8,5 +8,11 @@
 
 https://github.com/user-attachments/assets/025baa70-04cb-43ca-beac-8ff5af9d9d52
 
+还有一套HOOK微信的,一起出
+
+
+https://github.com/user-attachments/assets/75f47c3f-a696-411c-9b95-3e74fb67a0a9
+
+
 出源码
 https://t.me/fuck004gdfgf43
